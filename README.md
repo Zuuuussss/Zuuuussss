@@ -1,5 +1,5 @@
 
-<img align="center" style="margin-bottom:100px; object-fit: contain" width=100% src="https://im.ge/i/Design-sem-nome-6.Z50zGa" />
+<img align="center" style="margin-bottom:100px; object-fit: contain" width=100% src="https://im.ge/i/Z50zGa" />
 &nbsp;&nbsp;&nbsp;
 
 
