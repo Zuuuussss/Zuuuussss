@@ -1,5 +1,5 @@
 
-<img align="center" style="margin-bottom:100px; object-fit: contain" width=100% src="https://i.im.ge/2024/04/26/Z50vAy.Design-sem-nome-6.png" />
+<img align="center" style="margin-bottom:100px; object-fit: contain" width=100% src="https://github.com/Zuuuussss/Zuuuussss/assets/152223609/e687ddb7-3e4e-4fe0-8874-97b22cd20ce1" />
 &nbsp;&nbsp;&nbsp;
 
 
